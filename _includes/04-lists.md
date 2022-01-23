@@ -1,6 +1,6 @@
-My favourite things 
+My favourite things :lis
 - 😄
-- 💝
+- ❤️
 
 More about me
 - loves reading
