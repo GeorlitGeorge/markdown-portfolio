@@ -1,1 +1,7 @@
-Replace this with a list of your favorite things.
+My favourite things 
+- :smile:
+- :heart:
+
+More about me
+- loves reading
+- travel
