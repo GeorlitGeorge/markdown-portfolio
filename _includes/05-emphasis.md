@@ -1,3 +1,3 @@
-__Skills :heart:__
+__Skills ❤️__
 - *Python*
 - *C*
