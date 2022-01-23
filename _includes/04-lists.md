@@ -1,6 +1,6 @@
 My favourite things 
-- :smile:
-- :heart:
+- :smile
+- :heart
 
 More about me
 - loves reading
