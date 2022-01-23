@@ -1,3 +1,3 @@
-__Skills ❤️__
+__Skills__ ❤️
 - *Python*
 - *C*
